@@ -1,13 +1,1 @@
-𐙚~Midoriya
-![](https://cdn.discordapp.com/attachments/1164061276784312411/1312707783531171840/zjjzlo.gif?ex=674d79e4&is=674c2864&hm=606a96d716df6a8c4327acc869ec474ba5da38fe7fe80b34ef20f2a7f080db1b&)
-![](https://media.discordapp.net/attachments/1307881999838482555/1313317785299845191/Untitled147_20241202191558.png?ex=675ce100&is=675b8f80&hm=63a65cb52ec8f35a3b0bf0403a45e37dbfcea47c4362b92f3503dc527f3d383f&=&format=webp&quality=lossless&width=603&height=603)
-![](https://cdn.discordapp.com/attachments/1164061276784312411/1312690317471780964/4njtw7.gif?ex=674d69a0&is=674c1820&hm=a5bcb2ecc983a839c438586b4c54f7139ea90c7817f428f47603a5755fdb15ac&)  **Izuzu!** ♰ *LiiLii* ♰ ***Zi*** 
-![](https://cdn.discordapp.com/attachments/1164061276784312411/1312681588735082536/tumblr_c06ff8152a446d69d009b9e183ffd2b0_a3448007_250.gif?ex=674d617f&is=674c0fff&hm=f3ffa329179b2a733a84767c763b128dac3029b3087808787ab0c36afaa6de8b&)
-![](https://cdn.discordapp.com/attachments/1164061276784312411/1312707790221082634/image-2024-05-23-223427658.png?ex=674d79e6&is=674c2866&hm=ad2af4e8898b25a2246c802daa6347f2bbd7b8cbd9503b3c8e479cd80cdcc0f0&)
-![](https://cdn.discordapp.com/attachments/1164061276784312411/1312681668590702672/qdm41l.gif?ex=674d6192&is=674c1012&hm=38c8040c5ecc72306ff4ea273d9341310cf5ad3a40d82e902c36d9e9b6896d53&)     **Go check out my Rentry and pronouns page for more info!!**![](https://cdn.discordapp.com/attachments/1164061276784312411/1312681668590702672/qdm41l.gif?ex=674d6192&is=674c1012&hm=38c8040c5ecc72306ff4ea273d9341310cf5ad3a40d82e902c36d9e9b6896d53&)
-![](https://cdn.discordapp.com/attachments/1164061276784312411/1312707783531171840/zjjzlo.gif?ex=674d79e4&is=674c2864&hm=606a96d716df6a8c4327acc869ec474ba5da38fe7fe80b34ef20f2a7f080db1b&)
 
-
-
-
-![](https://media.discordapp.net/attachments/1164061276784312411/1313322074630258769/gnr7ie.gif?ex=674fb5fe&is=674e647e&hm=9e6e883052ccae4f83d9e7ed41b24fd01870cf22f2e0a05638b589d783e9f84e&=)
