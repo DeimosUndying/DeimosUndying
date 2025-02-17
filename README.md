@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/glc9v6.png)
+![](https://files.catbox.moe/19f6yx.webp)
 
 <p align=“center”>  
 
