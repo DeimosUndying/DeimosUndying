@@ -10,7 +10,7 @@ Look at my sites !
 
 <div align="center">
   
-![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=y091vl2c40oyrovu7v4r6j298&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=e93faa&bar_color_cover=false)
+![spotify-github-profile]([[https://spotify-github-profile.kittinanx.com/api/view.svg?uid=8gf0bcfbsbpz6ihpnfkbnumjt&redirect=true][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=8gf0bcfbsbpz6ihpnfkbnumjt&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true)]])
 ໒꒰ྀིっ˕ -｡꒱ྀི১ 
 
 
